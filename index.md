@@ -23,7 +23,7 @@
 #Day 5 
 ##IV was condected to Metal industrys shoranur, 2 industrys one of injuction molding and another of metal forging was visited . 
 
-# The intership ended on 27th January 2023 , the experience was great abd i lerned new things , I am looking forward for more interships like this 
+#The intership ended on 27th January 2023 , the experience was great abd i lerned new things , I am looking forward for more interships like this 
 
 
 
